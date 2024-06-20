@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on some projects
-- 📫 How to reach me - hubhodeepx@icloud.com or [instagram](https://www.instagram.com/reet_hours/)
+- 📫 How to reach me - shubhodeepx@icloud.com or [instagram](https://www.instagram.com/reet_hours/)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im super enthusiastic 
 
